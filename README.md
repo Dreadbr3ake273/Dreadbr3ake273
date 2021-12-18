@@ -2,7 +2,7 @@
 - 👀 I’m interested in General Programming
 - 🌱 I’m currently learning C#
 - 📫 How to reach me: 
-  Discord: ✞Dreadbr3ake273✞#6969 
+  Discord: ! Dreadbr3ake273ッ#0043
   Telegram: @Dreadbr3ake273 
   Gmail: lorenzocampa07@gmail.com
 
